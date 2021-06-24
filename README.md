@@ -1,1 +1,1 @@
-# Shoxruz2006.github.io
+birinchi proektim github dagi
